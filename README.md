@@ -1,2 +1,0 @@
-# kkhhaalliidd
-bot asas
